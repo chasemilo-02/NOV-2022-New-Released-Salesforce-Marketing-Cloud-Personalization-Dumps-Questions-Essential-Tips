@@ -1,0 +1,1 @@
+# NOV-2022-New-Released-Salesforce-Marketing-Cloud-Personalization-Dumps-Questions-Essential-Tips
