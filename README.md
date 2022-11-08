@@ -40,5 +40,5 @@
 <br />
 Releated Post:</strong></span></p>
 
-<p><a href="	https://www.linkedin.com/pulse/nov-2022-salesforce-marketing-cloud-personalization-/	">https://www.linkedin.com/pulse/nov-2022-salesforce-marketing-cloud-personalization-/ </a><br />
-<a href="	https://www.linkedin.com/pulse/nov-2022-justcerts-huawei-h13-531v20-dumps-try-updated-/	">https://www.linkedin.com/pulse/nov-2022-justcerts-huawei-h13-531v20-dumps-try-updated-/ </a></p>
+<p><a href="https://www.linkedin.com/pulse/nov-2022-salesforce-marketing-cloud-personalization-/">https://www.linkedin.com/pulse/nov-2022-salesforce-marketing-cloud-personalization-/ </a><br />
+<a href="https://www.linkedin.com/pulse/nov-2022-salesforce-marketing-cloud-personalization-/">https://www.linkedin.com/pulse/nov-2022-justcerts-huawei-h13-531v20-dumps-try-updated-/ </a></p>
